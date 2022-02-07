@@ -1,3 +1,3 @@
 # Projeto portfolio
 
-🚧 EM CONSTRUÇÂO 🚧
+🚧 EM CONSTRUÇÃO 🚧
